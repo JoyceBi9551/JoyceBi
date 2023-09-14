@@ -1,1 +1,3 @@
-# JoyceBi
+# This is Joyce Bi
+# I love sleep, spending time with my friends, staying alone at night, fresh fruit tea, drink...
+
